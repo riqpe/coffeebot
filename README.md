@@ -1,3 +1,3 @@
 coffeebot
 =========
-IT'S COFFEE TIME! (╯°□°)╯︵ ┻━┻
+IT'S COFFEE TIME! ┬─┬﻿ ノ( ゜-゜ノ)
